@@ -1,4 +1,4 @@
-# Hi! I'm Kevin Lu, a mathematics student at UofT 👋
+# Hi! I'm Kevin Lu, a Mathematics Student at UofT 👋
 
 ## 📫 How to Reach Me:
 - kevinruilin.lu@mail.utoronto.ca
