@@ -1,2 +1,2 @@
-Personal Website: kevinrlu.com
+Personal Website: [kevinrlu.com]
 Contact: kevinruilin.lu@mail.utoronto.ca
